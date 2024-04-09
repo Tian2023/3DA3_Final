@@ -1,2 +1,4 @@
 # 3DA3_Final
-For the final assignment
+Hey Vergil, your portal-opening days are over, gimme the Yamato.
+If you want it, then you have to take it.
+But you already knew that.
